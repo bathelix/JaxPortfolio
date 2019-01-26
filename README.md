@@ -1,1 +1,1 @@
-This is my professional portfolio.  Like everything else it is a work in progress, thanks for looking and any feedback is welcome!
+This was yet another beginning of making a portfolio I decided to go another way, so nothing to see here.
